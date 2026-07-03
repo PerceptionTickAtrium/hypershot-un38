@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with instant Scripts for hypershot, the #1 Script. Includes fly and invisibility for unbeatable performance.
 
 
 
